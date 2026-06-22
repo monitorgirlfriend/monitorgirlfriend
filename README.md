@@ -5,4 +5,4 @@
 <hr>
 <details><summary>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤfull dni</summary><br>
 <sup>ㅤㅤㅤㅤㅤㅤdni; loli/shota/kodocons, "pro-life", pro-israel</sup><br>
-<sup>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthin ice; dr. bright users, msi fans, hazbin hotel fans</sup></details>
+<sup>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthin ice; dr. bright users, msi fans, hazbin hotel fans</sup></details>
