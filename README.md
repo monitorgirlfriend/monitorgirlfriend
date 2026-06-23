@@ -4,5 +4,5 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤ<sub>under 13 dni<br>
 <hr>
 <details><summary>ㅤㅤㅤfull dni</summary><br>
-<sup>ㅤㅤㅤㅤdni; loli/shota/kodocons, "pro-life", pro-israel</sup><br>
-<sup>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthin ice; dr. bright users, msi fans, hazbin hotel fans</sup></details>
+<sup>ㅤㅤㅤdni; loli/shota/kodocons, "pro-life", pro-israel</sup><br>
+<sup>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthin ice; dr. bright users, msi fans, hazbin hotel fans</sup></details>
