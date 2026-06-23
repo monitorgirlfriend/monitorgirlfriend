@@ -3,6 +3,6 @@
 ㅤㅤ<sup>he/she</sup> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<sub>under 15 thin ice</sub><br>
 ㅤㅤㅤㅤㅤㅤㅤㅤ<sub>under 13 dni<br>
 <hr>
-<details><summary>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤfull dni</summary><br>
+<details><summary>ㅤㅤㅤfull dni</summary><br>
 <sup>ㅤㅤㅤㅤㅤㅤdni; loli/shota/kodocons, "pro-life", pro-israel</sup><br>
 <sup>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthin ice; dr. bright users, msi fans, hazbin hotel fans</sup></details>
