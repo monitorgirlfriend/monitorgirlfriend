@@ -1,6 +1,6 @@
 <img align="left" width="200px" height="300px" src="https://i.pinimg.com/736x/8d/73/cf/8d73cfe34a4e3a02f8c45e2e440cc7ee.jpg"/> <header> <img align="top" width="600" height="250" src="tnup_ eyezoom.gif"/> <p align="center">craig/dawg</p> </header> <img align="left" width="150" height="355" src="https://i.pinimg.com/736x/22/ff/f8/22fff84e5f1798a9da2f6b05a2dbcdcb.jpg"/> <img align="left" width="200px" src="https://i.pinimg.com/736x/a9/68/4a/a9684aa78272d6138a83a091cabf1c18.jpg"/> <br>
 <!-- i totally fucked up the html code but like whatever it still looks pretty cool lets just pretend that this was intentional -->
-ㅤㅤ<sub>he/she ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤunder 15 thin ice</sub><br>
+ㅤㅤ<sup>he/she</sup> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<sub>under 15 thin ice</sub><br>
 ㅤㅤㅤㅤㅤㅤㅤㅤ<sub>under 13 dni<br>
 <hr>
 <details><summary>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤfull dni</summary><br>
