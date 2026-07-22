@@ -3,6 +3,7 @@ dni; loli/shota/kodocons, under 13, 'the boys' fandom, pro-israel, hermitcraft c
 iwc; dr bright users, under 15, overly religious people<br>
 <br>
 i love disco elysium and scp a lot<br>
+scp fans int pretty please<br>
 <br>
 fyi if im sitting alone that usually means i want people to interact``*``!! im almost always<br>
 offtab so whisper me to catch my attention :)<br>
