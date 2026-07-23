@@ -1,6 +1,8 @@
 <img width="500" src="https://i.pinimg.com/736x/5b/7d/88/5b7d887298e80493d8600d71ee4886ed.jpg"/><br>
-dni; loli/shota/kodocons, under 13, 'the boys' fandom, pro-israel, hermitcraft cosplayers``*``<br>
-iwc; dr bright users, under 15, overly religious people<br>
+dni; loli/shota/kodocons, under 13, 'the boys' fandom, pro-israel, hermitcraft cosplayers``*``,<br>
+people who think christians/catholics are oppressed/unprivileged<br>
+<br>
+iwc; dr bright users, under 15<br>
 <br>
 i love the scp foundation a lot<br>
 <br>
