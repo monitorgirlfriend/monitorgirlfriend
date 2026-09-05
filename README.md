@@ -1,4 +1,4 @@
-<p align="center"> <img width="400" src="https://i.postimg.cc/D002Hnr6/harryjail.gif"/><br>
+<p align="center"> <img width="400" src="https://media1.tenor.com/m/uUQyxdfN5WIAAAAd/disco-elysium-kick.gif"/><br>
 <br>
 <img src="https://files.catbox.moe/sxpn4n.gif"/><img src="https://64.media.tumblr.com/b7770f9863698c20a3ac27b6567b3e78/842a858dd1e1636a-61/s75x75_c1/b454cfaecd76208346b79fd8a25e6bbb8e7b518e.pnj"/><img src="https://64.media.tumblr.com/9d1a19ceba9a6c0e312891434e7d1b47/842a858dd1e1636a-58/s75x75_c1/3087b2773b848acba8f3d06f3b621cbf64fc4d0d.gifv"/><img src="https://64.media.tumblr.com/ba435f09e067f5e1283a49284fcc3232/5e010c51db36d395-8c/s75x75_c1/ab28d23fbacdfd19c29020e519cee21f483d7aca.gifv"/><img src="https://64.media.tumblr.com/01d80ca72362b1f93114388f19096e8d/89acd915911ac983-9d/s75x75_c1/a3eae6ad047001f308da8dbee8c03a4dad02c8c5.gifv"/><br>
 <a href="https://arewecoolyet.straw.page">strawpage</a>ㅤㅤㅤ<img src="https://files.catbox.moe/o4mun2.gif"/>ㅤㅤㅤ<a href="https://clef.atabook.org">atabook</a><br>
